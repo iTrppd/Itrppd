@@ -1,3 +1,1 @@
-<p align="center">
-  <img src="[https://files.catbox.moe/ud4oon.gif)">
-</p>
+![itraped](https://github.com/user-attachments/assets/4481c275-383b-4924-921b-6baa99c95854)
